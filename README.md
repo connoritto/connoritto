@@ -1,5 +1,5 @@
 
-![32d3b06d62592f9e80f6aa783727cb45](https://github.com/user-attachments/assets/51325a26-d6f3-4377-ab8c-d9d4aa7c12d1)
+<img width="828" height="396" alt="Без названия37_20250912232559" src="https://github.com/user-attachments/assets/c6df1954-4c8e-4476-8fb4-e49d7fef573f" />
 
 
 
