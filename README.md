@@ -1,5 +1,6 @@
 
-![f9ea9efb690f39daeb1286f7a83c873f](https://github.com/user-attachments/assets/a1b06b2d-8dac-4e14-91f3-006d738a2baf)
+![32d3b06d62592f9e80f6aa783727cb45](https://github.com/user-attachments/assets/51325a26-d6f3-4377-ab8c-d9d4aa7c12d1)
+
 
 
 Aye, wussup.
