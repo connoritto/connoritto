@@ -1,5 +1,5 @@
 
-<img width="828" height="396" alt="Без названия37_20250912232559" src="https://github.com/user-attachments/assets/c6df1954-4c8e-4476-8fb4-e49d7fef573f" />
+
 
 
 
