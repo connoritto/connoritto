@@ -7,6 +7,7 @@ Aye, wussup.
 
 c+h freely, do not copy my stye of smth ples, iwc!!! i'm moody, rude etc. if ya wanna be friends dm me in dc or whisper in pt! dc : b0nkumiru
 again saying that i'm rude andd i just dont wanna hurt anyone. im not a pleasant person to contact with.
+i'm mostly offtab or afk, i'm not obly if i'm with my friends etc.
 
 have a great day\night, bye 
 
