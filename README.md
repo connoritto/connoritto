@@ -11,6 +11,9 @@ i'm mostly offtab or afk, i'm not only if i'm with my friends etc.
 
 
 ЙО! че за хуйню я написал, щас перепишу
+
+
+
 'ey, so basically my name is Andrey\andrew or Jeremy, i perfer em both, also i dont mind some nicknames like Andy 'n' Jer. buti'm not rly comfortable w petnames like : darling, kitten, love etc. ist gut if ya use em only as joke n dont meana anythin' by it.
 i don't contact w other players on tf2 areas unless i have to, i rarely sit beside c+h dudes even if i wanna cuz im scared.
 dont be scared to cud or sit beside me cuz i dont bite and often offtab or afk, if i'm not it means i'm w my friend prob or js free at the moment.
