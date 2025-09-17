@@ -21,6 +21,7 @@ yea i might be rude but i'm more firendly when i'm in good mood so iwc. iwec whe
 i'm bad at makin' friends and often silent. i dont like talk much w some1 idk, buut i can be talkactive too, i dont promise anythin'
 feel free to talk w me. i'm anyways trying to get nicer
 i'm often in bad mood these days so again iwc.
+oh btw when i'm afk or offtab i often can js spec
 
 
 have a good day or smth, tschüss!
