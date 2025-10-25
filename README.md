@@ -7,7 +7,7 @@
 
 
 
-<img width="750" height="750" alt="Без названия84_20251025001352" src="https://github.com/user-attachments/assets/5ba6ab2f-7d89-4a75-9d89-04ee60049e5e" />
+ ‎ ‎ <img width="750" height="750" alt="Без названия84_20251025001352" src="https://github.com/user-attachments/assets/5ba6ab2f-7d89-4a75-9d89-04ee60049e5e" />
 
 
 
