@@ -14,7 +14,7 @@ jeremy \ Andrey
 </p>
 
 <p align="center">
-<img width="550" height="550" alt="Без названия170_20251206202144" src="https://github.com/user-attachments/assets/41cf247e-d0c3-4f58-a9ca-c653b75f617a" />
+<img width="750" height="750" alt="Без названия175_20251207112403" src="https://github.com/user-attachments/assets/17bac3c9-ebfa-4674-9652-e743274b9fef" />
 </p>
 
 <p align="center">
