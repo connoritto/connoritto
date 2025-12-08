@@ -7,19 +7,11 @@ jeremy \ Andrey
 </p>
 <p align="center">
   he/him
-</p>
-
-<p align="center">
-────────────
-</p>
 
 <p align="center">
 <img width="550" height="550" alt="Без названия176_20251207184241" src="https://github.com/user-attachments/assets/0fd7b308-d451-4a23-ac25-b24da468ea2a" />
 </p>
 
-<p align="center">
-────────────
-</p>
 <p align="center">
  c+h freely unless i'm w friends, w2i always, i'm mostly offtab (or spectatin' ppl), iwc(caution!), dnc my skins 
 </p>
